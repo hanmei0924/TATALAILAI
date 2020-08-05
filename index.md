@@ -34,6 +34,6 @@ The Tata kingdom is a barren but promising land. Lovely, intelligent and kind La
 ## **LAILAI could be Anything except Nothing (●´З｀●)爱你哦 baobao**
 
 
-![PIPI forever](https://www.flickr.com/photos/twiztedrainbow/8972500833/)
+![PIPI forever](http://images5.fanpop.com/image/photos/31600000/Pikachu-Couple-pikachu-31692111-500-276.jpg)
 
 updated on Aug 4 2020
