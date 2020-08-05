@@ -1,7 +1,6 @@
 ## Welcome to TATALAILAI Republic
 
-The Tata kingdom is a barren but promising land where the vivacity, cleverness and goodness of the Lailai meet the Tata King, and they decide to build a new kingdom and the territory of the law tatalailai to be united and governed together
-The Lailai are subject to the great Tata King Tata who always takes care of his lovely Lailai
+The Tata kingdom is a barren but promising land. Lovely, intelligent and kind Lailais meet King Tata and decide to establish a new kingdom together. The laws of the kingdom are made and signed by Tatalailai. The Tata King rules the country and the Lailai are in charge. The great Tata King always looks after and protects his lovely Lailai.
 
 ### The law
 
