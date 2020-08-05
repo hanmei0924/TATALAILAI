@@ -15,6 +15,8 @@ The Tata kingdom is a barren but promising land. Lovely, intelligent and kind La
 
 5. If there is a contradiction. Never put off till tomorrow what can be done today.
 
+![PIPI crying](https://www.netclipart.com/pp/m/299-2999855_pikachu-crying.png)
+
 
 ### Tata award
 
