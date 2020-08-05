@@ -20,16 +20,20 @@ The Tata kingdom is a barren but promising land. Lovely, intelligent and kind La
 
 1. Be friendly to Lailai's questions
 
+2. Protect Lailai and keep her company when she is weak
+
 
 
 ### LaiLai award
 
 1. Encourage and praise the excellent performance of Tata
 
+2. Not to worry Tata when Tata is tired
+
 
 ## **LAILAI could be Anything except Nothing (●´З｀●)爱你哦 baobao**
 
 
-![Image of pipi]
-(https://www.flickr.com/photos/twiztedrainbow/8972500833/)
+![PIPI forever](https://www.flickr.com/photos/twiztedrainbow/8972500833/)
+
 updated on Aug 4 2020
